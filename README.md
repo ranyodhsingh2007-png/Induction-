@@ -31,3 +31,14 @@
 ## Expert lecture was given by Dr. Jaswinder Singh who is the incharge of Indian Association Of Physics Teacher in auditorium .He teaches physics using various practical examples that are useful in our daily life.
 # -Timing 11:00am to 1:00pm
 ## Expert lecture was given by Dr. Priya Darshni Madam on universal human values in auditorium.
+# Day 4 :-
+# -Timing 9:30am to 10:30am
+## Today marked my first chemistry lecture after taking admission into the B.Tech (Computer Science and Engineering) program at Guru Nanak Dev Engineering College (GNDEC). The lecture was conducted by Prof. Rajvir Kaur, who gave us a warm welcome and an insightful introduction to the subject.She began by briefly outlining the importance of chemistry even in engineering fields like CSE, emphasizing that a foundational understanding of materials, reactions, and properties is useful in areas like hardware, nanotechnology, and environmental awareness.Prof. Rajvir Kaur introduced us to the first chapter of the syllabus and explained the structure of the chemistry course. 
+# -Timing 10:30am to 11:30am
+## The senior of the college take the leacture of p2p which was very help full. They told all the basic things about c++ and how to start code which was very helpful.
+# -Timing 11:30am to 12:30am
+## Break
+# -Timing 12:30pm to 2:30pm
+## Lecture was taken by Dr. Priya Darshni who told us about the universal human values. This lecture helped the students to face our difficulty in our life and also makes us to respect others. 
+# -Timing 2:30pm to 3:30pm
+## Lecture was taken by causmic club. In this lecture members of causmic club told us about the club. They told us that many events were conducted by this club and students can also participte in these events and then one the member sung a song and made the lecture exited.
