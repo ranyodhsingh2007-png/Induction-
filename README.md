@@ -1,13 +1,13 @@
 # Induction-
 # Day 1 :-
 # -Timing 8:30am to 9:30am
- ## Path and kirtan in gurudwara sahib
+ ## It was my first time visiting the college Gurudwara Sahib. The experience was very peaceful. All the students were sitting together in the Gurudwara, reciting Shabad Kirtan . 
  # -Timing 9:30am to 10:00am
-  ## tea break
+  ## After Ardaas and receiving Parshad at the Gurudwara Sahib, all the students proceeded to have tea, which was arranged by the college.
  # -Timing 10:00am onwards
 ## Inaugural cermony -
- ## speach given by :-
- ## Principal sir Dr. Sehajpal Singh.
+ ## Speech given by :-
+ ## Principal sir Dr. Sehajpal Singh gave speech on college's environment and infrastructure.
 ## Cheif guest Er. Rakesh Kumar  who is alumni of 1991 batch of GNDEC and serving as ADC in Ludhiana.
 ## Cheif guest Shri Ravinder garg who is cheif engineer in municipal Corporation Ludhiana.
 
