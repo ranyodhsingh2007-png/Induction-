@@ -42,3 +42,10 @@
 ## Lecture was taken by Dr. Priya Darshni who told us about the universal human values. This lecture helped the students to face our difficulty in our life and also makes us to respect others. 
 # -Timing 2:30pm to 3:30pm
 ## Lecture was taken by causmic club. In this lecture members of causmic club told us about the club. They told us that many events were conducted by this club and students can also participte in these events and then one the member sung a song and made the lecture exited.
+# Day 4 :-
+# Timing 9:30am to 10:30am
+## Today, our first lecture was English, and it was conducted by Prof. Manjot Kaur. She explained the English exam pattern and also described the marking scheme. She also took the introductions of the students.
+# Timing 10:30am to 11:30am
+## This lecture was our maths lecture which was taken by Prof. Rajvir Kaur. She asked the basic questions of maths which we studied in 12th. She also told us the important chapters which we have to study in our 1st sem.
+# Timing 11:30am to 12:30pm
+## BEEE( Basic electric and electronics engg.) lecture was taken by Prof. Mandeep Kaur. She wrote the notes on the board. THese notes were basic notes which we studied in 10+2 class. 
