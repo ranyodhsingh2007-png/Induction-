@@ -22,7 +22,7 @@
 # -Timing 11:30am to 1:00pm
 ## Break
 # -Timing 1:00pm to 2:00pm
-## Expert lecture was given by Dr. Arashdeep Singh on "Food: a pivotal role in student's overall wellness in auditorium. He yold us about the beat way to choice the right food and also told us how to maintain ooir health.
+## Expert lecture was given by Dr. Arshdeep Singh on "Food: a pivotal role in student's overall wellness in auditorium. He yold us about the beat way to choice the right food and also told us how to maintain ooir health.
 # -Timing 2:00pm to 3:00 pm
 ## Session was taken by causmic club and launch of induction activities in auditorium. 
 
